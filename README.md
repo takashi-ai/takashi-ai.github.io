@@ -1,0 +1,1 @@
+# takashi-ai.github.io
